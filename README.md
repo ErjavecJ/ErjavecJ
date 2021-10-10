@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ErjavecJ
+- 🌱 I’m currently learning phyton 
+- 📫 Jakificko#7151 (discord)
